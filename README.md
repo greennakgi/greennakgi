@@ -24,6 +24,10 @@ My volunteer work
 #### TedXHanyangU(06. 2019 – 06. 2020)
 * Responsible for planning and managing the overall operations of the 17th and 18th events
 
+My club activity
+---
+### Hanyang golf club(03. 2023 - 09.2024)
+
 
 
 
